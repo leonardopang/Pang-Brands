@@ -1,1 +1,1 @@
-# Pang-Brands
+# Pang Brands
